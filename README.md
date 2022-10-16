@@ -1,7 +1,7 @@
 > Inilah aku seorang gadis bernama Luna<br>
 > Yang berasal dari pinggiran Kota
  
-> Terlahir rahim dari seorang ibu<br>
+> Terlahir dari rahim seorang ibu<br>
 > Dalam kurun waktu beberapa tahun lalu<br>
 > Sekarang mulai beranjak remaja<br>
 > Mencoba beradaptasi dengan dunia<br>

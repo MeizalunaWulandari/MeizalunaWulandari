@@ -16,7 +16,7 @@
 > Ataupun hal yang ku cintai<br>
 
 > Melainkan sebuah tugas sekolah<br>
-> Yang embankan oleh seorang guru<br>
+> Yang diembankan oleh seorang guru<br>
 > Kepada seluruh muridnya termasuk diriku<br>
 > Yang mengharuskan ku terjun dalam dunia teknogi<br>
 > Yang sama sekali tak ku pahami<br>

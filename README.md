@@ -4,10 +4,10 @@
 > Terlahir dari rahim seorang ibu<br>
 > Dalam kurun waktu beberapa tahun lalu<br>
 > Sekarang mulai beranjak remaja<br>
-> Mencoba beradaptasi dengan dunia<br>
+> Mencoba beradaptasi dengan dunia
 
 > Seorang gadis penyuka olahraga<br>
-> Dipaksa terjun dalam dunia infomatika<br>
+> Dipaksa terjun dalam dunia informatika<br>
 > Yang berawal dari keterpaksaan<br>
 > Dan bertahan atas bantuan teman<br>
 > Tak berdasar diatas minat<br>

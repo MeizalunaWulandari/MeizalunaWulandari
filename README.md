@@ -1,0 +1,37 @@
+> Inilah aku seorang gadis bernama Luna<br>
+> Yang berasal dari pinggiran Kota
+ 
+> Terlahir rahim dari seorang ibu<br>
+> Dalam kurun waktu beberapa tahun lalu<br>
+> Sekarang mulai beranjak remaja<br>
+> Mencoba beradaptasi dengan dunia<br>
+
+> Seorang gadis penyuka olahraga<br>
+> Dipaksa terjun dalam dunia infomatika<br>
+> Yang berawal dari keterpaksaan<br>
+> Dan bertahan atas bantuan teman<br>
+> Tak berdasar diatas minat<br>
+> Ataupun berawal dari sebuah niat<br>
+> Bukan juga dari hobi<br>
+> Ataupun hal yang ku cintai<br>
+
+> Melainkan sebuah tugas sekolah<br>
+> Yang embankan oleh seorang guru<br>
+> Kepada seluruh muridnya termasuk diriku<br>
+> Yang mengharuskan ku terjun dalam dunia teknogi<br>
+> Yang sama sekali tak ku pahami<br>
+> Namun harus ku pelajari<br>
+> Tak ada niat tuk mendalami<br>
+> Apa lagi bercita-cita menjadi ahli<br>
+> Hanya berusaha mempelajari<br>
+> Serta mencoba sedikit memahami<br>
+> Agar suatu hari nanti<br>
+> Nilai raporku tak terbenani<br>
+
+> Ini bukanlah sebuah puisi
+> Apalagi sebuah intuisi
+> Hanya sekadar perkenalan diri
+> Yang sedikit dimodifikasi
+> Terinspirasi dari sang idola
+> Seorang jurnalis dan pembawa acara
+> Sebuah acara bernama Mata Najwa

@@ -18,7 +18,7 @@
 > Melainkan sebuah tugas sekolah<br>
 > Yang diembankan oleh seorang guru<br>
 > Kepada seluruh muridnya termasuk diriku<br>
-> Yang mengharuskan ku terjun dalam dunia teknogi<br>
+> Yang mengharuskan ku terjun dalam dunia teknologi<br>
 > Yang sama sekali tak ku pahami<br>
 > Namun harus ku pelajari<br>
 

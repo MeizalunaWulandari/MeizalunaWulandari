@@ -21,6 +21,7 @@
 > Yang mengharuskan ku terjun dalam dunia teknogi<br>
 > Yang sama sekali tak ku pahami<br>
 > Namun harus ku pelajari<br>
+
 > Tak ada niat tuk mendalami<br>
 > Apa lagi bercita-cita menjadi ahli<br>
 > Hanya berusaha mempelajari<br>
@@ -28,10 +29,10 @@
 > Agar suatu hari nanti<br>
 > Nilai raporku tak terbenani<br>
 
-> Ini bukanlah sebuah puisi
-> Apalagi sebuah intuisi
-> Hanya sekadar perkenalan diri
-> Yang sedikit dimodifikasi
-> Terinspirasi dari sang idola
-> Seorang jurnalis dan pembawa acara
+> Ini bukanlah sebuah puisi<br>
+> Apalagi sebuah intuisi<br>
+> Hanya sekadar perkenalan diri<br>
+> Yang sedikit dimodifikasi<br>
+> Terinspirasi dari sang idola<br>
+> Seorang jurnalis dan pembawa acara<br>
 > Sebuah acara bernama Mata Najwa

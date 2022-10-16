@@ -27,7 +27,7 @@
 > Hanya berusaha mempelajari<br>
 > Serta mencoba sedikit memahami<br>
 > Agar suatu hari nanti<br>
-> Nilai raporku tak terbenani<br>
+> Nilai raporku tak terbebani<br>
 
 > Ini bukanlah sebuah puisi<br>
 > Apalagi sebuah intuisi<br>
